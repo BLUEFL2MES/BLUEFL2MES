@@ -9,7 +9,11 @@ or talk to me on pony town or roblox
 - 📫 How to reach me google pt or github
 - 😄 Pronouns: they/them/she/her
 - ⚡ Fun fact: I'm dumb af
-- Im a minor. 
+- Im a minor.
+- Dni if 35+
+- Autistic
+- Trans
+- Aroace
 
 <!---
 BLUEFL2MES/BLUEFL2MES is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
