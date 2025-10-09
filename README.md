@@ -1,4 +1,4 @@
-DRAW ON MY STRAWPAGE https://straw.page/make?id=spinners-heart REDOING RN
+DRAW ON MY STRAWPAGE https://blackforestsfavoritefan.straw.page/
 hello i do drawing and gameplays for
 my living and feel free to sit by me 
 or talk to me on pony town or roblox
