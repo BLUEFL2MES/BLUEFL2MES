@@ -1,14 +1,15 @@
-DRAW ON MY STRAWPAGE https://straw.page/make?id=spinners-heart
+DRAW ON MY STRAWPAGE https://straw.page/make?id=spinners-heart REDOING RN
 hello i do drawing and gameplays for
 my living and feel free to sit by me 
 or talk to me on pony town or roblox
 - 👋 Hi, I’m @dabi
-- 👀 I’m interested in coding and making skins
+- 👀 I’m interested in coding and making skins and drawing
 - 🌱 I’m currently learning how to code
 - 💞️ Birth Day March 30th
 - 📫 How to reach me google pt or github
 - 😄 Pronouns: they/them/she/her
 - ⚡ Fun fact: I'm dumb af
+- Im a minor. 
 
 <!---
 BLUEFL2MES/BLUEFL2MES is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
